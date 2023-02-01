@@ -3,7 +3,7 @@
 
 🌱 I’m studying Masters in Northwest Missouri State University
 
-📫 How to reach me:
+📫 Email me here S560285@nwmissouri.edu
 
 ⚡ Give Me a <`br`>
 
